@@ -2,7 +2,7 @@
   
   <p align="center">ㅤ <img src="https://64.media.tumblr.com/57ba36735aa5a4d03b2999c9f17b4e48/615a7001ce56bf1a-29/s400x600/c33fc435dd4be481c5939e6929cd4e46888acb35.gifv" width=400 height=300>ㅤ</p>
 
- <p align="center"> <sub>undiagnosedㅤsysㅤㅤproblematicㅤ?</sub>
+ <p align="center"> <sub>undiagnosedㅤsysㅤㅤaudhd</sub>
 
 <div align="center" dir="auto">
   <details close="">
