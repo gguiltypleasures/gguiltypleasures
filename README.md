@@ -1,16 +1,13 @@
-## Hi there 👋
+  <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=gguiltypleasures&label=ㅤvictimsㅤ^,..,^ㅤ&color=000000&style=flat"> </dir> </p>
+  
+  <p align="center">ㅤ <img src="https://64.media.tumblr.com/57ba36735aa5a4d03b2999c9f17b4e48/615a7001ce56bf1a-29/s400x600/c33fc435dd4be481c5939e6929cd4e46888acb35.gifv" width=400 height=300>ㅤ</p>
 
-<!--
-**gguiltypleasures/gguiltypleasures** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ <p align="center"> <sub>undiagnosed sysㅤㅤtcc</sub>
 
-Here are some ideas to get you started:
+<div align="center" dir="auto">
+  <details close="">
+ <summary></summary> 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<sub>anti-censorshipㅤ proshipㅤ/ㅤdarkshipㅤㅤfourteen</sub>
+<br>
+  <sub>caldreㅤ+ㅤeh x dkㅤintㅤfreely</sub>
