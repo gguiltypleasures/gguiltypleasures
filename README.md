@@ -10,4 +10,4 @@
 
 <sub>anti-censorshipㅤ proshipㅤ/ㅤdarkshipㅤㅤfourteenㅤㅤcolumbine loverㅤ🐾ㅤㅤtakenㅤ(12.1.25)</sub>
 <br>
-  <sub>caldreㅤ+ㅤeh x dkㅤcanㅤintㅤfreelyㅤㅤlookingㅤ4ㅤtccㅤmoots</sub>
+  <sub>caldreㅤ+ㅤeh x dkㅤcanㅤintㅤfreelyㅤㅤlookingㅤ4ㅤtccㅤfriends!!</sub>
