@@ -8,6 +8,6 @@
   <details close="">
  <summary><sub>more</sub></summary> 
 
-<sub>anti-censorshipㅤ proshipㅤ/ㅤdarkshipㅤㅤfourteenㅤㅤcolumbine loverㅤㅤtaken (12.1.25)</sub>
+<sub>anti-censorshipㅤ proshipㅤ/ㅤdarkshipㅤㅤfourteenㅤㅤcolumbine loverㅤㅤm 🤍 (12.1.25)</sub>
 <br>
   <sub>caldreㅤ+ㅤeh x dk can int freelyㅤㅤlooking 4 tcc friends!!</sub>
