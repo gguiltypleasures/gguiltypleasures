@@ -2,12 +2,5 @@
   
   <p align="center">ㅤ <img src="https://i.pinimg.com/736x/14/98/35/149835dbd624b75d1a5725b5bf71284b.jpg" width=400 height=300>ㅤ</p>
 
- <p align="center"> <sub>undiagnosed sysㅤㅤaudhd</sub>
+ <p align="center"> <sub>sign my strawpage/ata</sub>
 
-<div align="center" dir="auto">
-  <details close="">
- <summary><sub>more</sub></summary> 
-
-<sub>anti-censorshipㅤ proshipㅤ/ㅤdarkshipㅤㅤfourteenㅤㅤcolumbine loverㅤㅤm 🤍 (12.1.25)</sub>
-<br>
-  <sub>caldreㅤ+ㅤeh x dk can int freelyㅤㅤlooking 4 tcc friends!!</sub>
