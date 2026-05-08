@@ -1,6 +1,6 @@
   <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=gguiltypleasures&label=꒷꒦&color=000000&style=flat"> </dir> </p>
   
-  <p align="center">ㅤ <img src="https://i.pinimg.com/736x/a7/1a/02/a71a0212a09b1d134837b0b37f6821a0.jpg" width=400 height=300>ㅤ</p>
+  <p align="center">ㅤ <img src="https://i.pinimg.com/736x/14/98/35/149835dbd624b75d1a5725b5bf71284b.jpg" width=400 height=300>ㅤ</p>
 
  <p align="center"> <sub>undiagnosed sysㅤㅤaudhd</sub>
 
